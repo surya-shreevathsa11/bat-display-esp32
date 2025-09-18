@@ -59,4 +59,3 @@ This project is ideal for Batman fans, makers, and anyone who enjoys a **stylish
 
 ---
 
-If you want, I can now **write an even snappier LinkedIn-ready version** that’s short, professional, and engaging for a post. It’ll grab attention while highlighting the tech and creativity. Do you want me to do that?
